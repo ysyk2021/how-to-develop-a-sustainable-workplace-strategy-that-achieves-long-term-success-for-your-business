@@ -12,7 +12,7 @@ Whether you are a business owner seeking to adopt sustainable practices, a susta
 
 This book is for anyone who is interested in developing a sustainable workplace strategy that achieves long-term success for their business and employees. Whether you are a business owner, sustainability professional, or simply someone interested in the intersection of business and sustainability, this book offers valuable insights and practical solutions for prioritizing sustainability in the workplace.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
