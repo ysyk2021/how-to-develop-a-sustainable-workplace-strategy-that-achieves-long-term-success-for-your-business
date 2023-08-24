@@ -1,5 +1,4 @@
 
-
 Developing a sustainable workplace strategy is critical for achieving long-term success in today's business environment. By prioritizing sustainability, organizations can promote environmental, social, and economic sustainability while meeting stakeholder expectations, building competitive advantage, promoting employee engagement, and protecting the environment.
 
 Summary of Key Points
