@@ -1,5 +1,3 @@
-Building Networks for Knowledge Sharing and Support
-==================================================================================================
 
 Building partnerships and networks is essential for the success of sustainable workplace strategies. In this chapter, we will discuss the importance of building networks for knowledge sharing and support, and provide guidance on how to effectively build these networks.
 

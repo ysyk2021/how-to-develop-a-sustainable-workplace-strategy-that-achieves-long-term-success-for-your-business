@@ -1,5 +1,3 @@
-Measuring the Effectiveness of Sustainable Workplace Strategies
-==========================================================================================
 
 Measuring the effectiveness of sustainable workplace strategies is essential for ensuring that they are having the desired impact. In this chapter, we will discuss the importance of measuring effectiveness and provide guidance on how to effectively measure the effectiveness of sustainable workplace strategies.
 

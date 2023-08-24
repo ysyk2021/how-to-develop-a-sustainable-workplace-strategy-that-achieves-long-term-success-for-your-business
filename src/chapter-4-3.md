@@ -1,5 +1,3 @@
-Establishing Metrics to Measure Progress
-=====================================================================================
 
 Setting goals for sustainability is an important first step in developing a sustainable workplace strategy. However, it is equally important to establish metrics to measure progress towards those goals. In this chapter, we will discuss the importance of establishing metrics and provide guidance on how to develop effective sustainability metrics.
 

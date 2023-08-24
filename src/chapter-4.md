@@ -1,5 +1,3 @@
-Chapter 3: Setting Goals for Sustainability
-===========================================
 
 Setting clear and measurable goals is essential for the successful development of sustainable workplace strategies. In this chapter, we will discuss how to establish sustainability goals and objectives, develop strategies to achieve those goals, and establish metrics to measure progress.
 

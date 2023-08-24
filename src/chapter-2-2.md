@@ -1,5 +1,3 @@
-The Benefits of Sustainable Workplace Strategies
-=====================================================================================================
 
 Sustainability in the workplace refers to practices and strategies that promote environmental, social, and economic sustainability. In this chapter, we will explore the benefits of sustainable workplace strategies.
 

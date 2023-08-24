@@ -1,5 +1,3 @@
-Implementing Sustainable Workplace Strategies for Long-Term Success
-==============================================================================================
 
 Implementing sustainable workplace strategies is critical for achieving long-term success for your business and employees. In this chapter, we will explore strategies for successful implementation of sustainable workplace strategies.
 

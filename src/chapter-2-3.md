@@ -1,5 +1,3 @@
-Examples of Successful Sustainability Strategies in Practice
-=================================================================================================================
 
 Sustainability in the workplace involves practices and strategies that promote environmental, social, and economic sustainability. In this chapter, we will explore examples of successful sustainability strategies in practice.
 

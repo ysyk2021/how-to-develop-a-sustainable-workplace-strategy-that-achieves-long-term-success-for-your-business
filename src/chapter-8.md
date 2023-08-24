@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leadership support is crucial for the successful development and implementation of sustainable workplace strategies. In this chapter, we will discuss the role of leadership in supporting these strategies and the best practices for modeling sustainable behaviors.
 

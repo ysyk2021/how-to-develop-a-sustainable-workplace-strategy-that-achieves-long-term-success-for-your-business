@@ -1,5 +1,3 @@
-Chapter 2: The Impact of Sustainability on Organizational Success
-=================================================================
 
 Sustainability is not just a matter of environmental responsibility, but also a key driver of organizational success. In this chapter, we will discuss the impact of sustainability on organizational success, the costs of ignoring sustainability, and the risks to employee morale, productivity, and retention.
 

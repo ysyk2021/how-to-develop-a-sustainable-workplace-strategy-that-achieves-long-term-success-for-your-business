@@ -1,5 +1,3 @@
-Encouraging Employee Participation and Feedback
-========================================================================================================
 
 Encouraging employee participation and feedback is critical for successfully implementing sustainable workplace practices. In this chapter, we will explore strategies for encouraging employee participation and feedback.
 

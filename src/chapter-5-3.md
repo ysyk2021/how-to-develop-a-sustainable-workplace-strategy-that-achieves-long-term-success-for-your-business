@@ -1,5 +1,3 @@
-Engaging with Community and Industry Leaders
-===========================================================================================
 
 Building partnerships and networks is essential for the success of sustainable workplace strategies. In this chapter, we will discuss the importance of engaging with community and industry leaders and provide guidance on how to effectively build partnerships and networks.
 

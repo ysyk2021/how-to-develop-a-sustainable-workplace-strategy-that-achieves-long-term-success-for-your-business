@@ -1,5 +1,3 @@
-Chapter 4: Building Partnerships and Networks
-=============================================
 
 Building partnerships and networks is essential for the successful development and implementation of sustainable workplace strategies. In this chapter, we will discuss the importance of collaborating with stakeholders and partners, building networks for knowledge sharing and support, and engaging with community and industry leaders.
 

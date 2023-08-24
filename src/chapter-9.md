@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As we move towards a more sustainable future, there are many innovations and challenges that businesses will face when developing sustainable workplace strategies. In this chapter, we will discuss some of the emerging trends and future directions for sustainable workplace strategies.
 

@@ -1,5 +1,3 @@
-Chapter 5: Implementing Sustainable Workplace Practices
-=======================================================
 
 Implementing sustainable workplace practices is essential for achieving long-term success and creating a culture of sustainability within the organization. In this chapter, we will discuss how to incorporate sustainable practices into daily routines, provide training and education, and encourage employee participation and feedback.
 

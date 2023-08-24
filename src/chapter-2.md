@@ -1,5 +1,3 @@
-Chapter 1: Defining Sustainability in the Workplace
-===================================================
 
 Sustainability is an increasingly important issue that affects not only the environment, but also social and economic factors. In this chapter, we will define sustainability in the workplace, discuss the benefits of sustainable workplace strategies, and provide examples of successful sustainability strategies in practice.
 

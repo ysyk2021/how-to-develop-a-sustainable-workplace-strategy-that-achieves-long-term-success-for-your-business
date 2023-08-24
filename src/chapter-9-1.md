@@ -1,5 +1,3 @@
-Innovations in Developing Sustainable Workplace Strategies
-========================================================================================
 
 As sustainability continues to be a pressing issue, businesses must continue to innovate and develop new strategies for achieving long-term success while making a positive impact on the environment and society. In this chapter, we will discuss some of the future directions and innovations in developing sustainable workplace strategies.
 

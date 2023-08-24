@@ -1,5 +1,3 @@
-The Costs of Ignoring Sustainability
-=======================================================================================================
 
 Ignoring sustainability can have significant negative impacts on the long-term success of organizations. In this chapter, we will discuss the costs of ignoring sustainability and provide guidance on how to effectively address these costs.
 

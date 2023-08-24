@@ -1,5 +1,3 @@
-The Role of Leadership in Supporting Sustainable Workplace Strategies
-====================================================================================================
 
 Leadership plays a critical role in supporting sustainable workplace strategies. In this chapter, we will discuss the importance of leadership support and provide guidance on how leaders can effectively promote sustainability initiatives.
 

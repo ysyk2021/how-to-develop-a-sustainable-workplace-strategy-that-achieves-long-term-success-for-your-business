@@ -1,5 +1,3 @@
-What is Sustainability in the Workplace?
-=============================================================================================
 
 Sustainability in the workplace refers to practices and strategies that promote environmental, social, and economic sustainability. This involves balancing the needs of the environment, society, and the economy to ensure long-term success for both the organization and its stakeholders.
 

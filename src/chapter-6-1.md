@@ -1,5 +1,3 @@
-Incorporating Sustainable Practices into Daily Routines
-================================================================================================================
 
 Once sustainability goals have been established and metrics developed, the next step is to implement sustainable workplace practices. In this chapter, we will discuss how to incorporate sustainable practices into daily routines and promote a culture of sustainability within the organization.
 

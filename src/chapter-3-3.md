@@ -1,5 +1,3 @@
-The Risks to Employee Morale, Productivity, and Retention
-============================================================================================================================
 
 Sustainability is increasingly recognized as a critical factor in the long-term success of organizations. However, the risks associated with failing to implement sustainable workplace practices can have significant negative impacts on employee morale, productivity, and retention. In this chapter, we will discuss these risks and provide guidance on how to effectively address them.
 

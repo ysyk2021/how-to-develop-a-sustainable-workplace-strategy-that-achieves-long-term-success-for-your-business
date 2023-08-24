@@ -1,5 +1,3 @@
-Importance of Developing a Sustainable Workplace Strategy for Long-Term Success
-=============================================================================================
 
 In today's rapidly changing business environment, sustainability has become an increasingly important consideration for organizations. Prioritizing sustainability in the workplace can help organizations achieve long-term success by promoting environmental, social, and economic sustainability.
 

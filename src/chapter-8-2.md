@@ -1,5 +1,3 @@
-Modeling Sustainable Behaviors
-=============================================================
 
 Leadership support is essential for the success of sustainable workplace strategies. One way leaders can demonstrate their commitment to sustainability is by modeling sustainable behaviors. In this chapter, we will discuss the importance of modeling sustainable behaviors and provide guidance on how to effectively do so.
 

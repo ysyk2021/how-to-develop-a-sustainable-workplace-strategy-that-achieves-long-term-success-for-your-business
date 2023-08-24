@@ -1,5 +1,3 @@
-Understanding the Impact of Sustainability on Organizational Success
-=======================================================================================================================================
 
 Sustainability in the workplace can have a significant impact on organizational success. In this chapter, we will explore the ways in which sustainability can impact organizational success.
 

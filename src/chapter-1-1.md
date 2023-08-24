@@ -1,5 +1,3 @@
-Purpose of the Book
-=================================
 
 The purpose of this book is to provide practical guidance and insights on how to develop a sustainable workplace strategy that achieves long-term success for your business and employees. In today's rapidly changing world, sustainability has become an increasingly important factor for businesses seeking to remain competitive and relevant in the marketplace.
 

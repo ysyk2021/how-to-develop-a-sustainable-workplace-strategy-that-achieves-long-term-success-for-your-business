@@ -1,5 +1,3 @@
-Developing Strategies to Achieve Those Goals
-=========================================================================================
 
 Setting goals for sustainability is an important step in developing a workplace strategy that achieves long-term success for your business and employees. By setting specific, measurable, achievable, relevant, and time-bound (SMART) goals, you can develop strategies to achieve those goals and ensure that your workplace is sustainable in the long run.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 Setting goals for sustainability is an important step in developing a workplace strategy that achieves long-term success for your business and employees. By defining your sustainability goals, developing strategies to achieve those goals, monitoring progress and adjusting strategies, and communicating your sustainability goals and strategies, you can ensure that your workplace is sustainable in the long term. By prioritizing sustainability, businesses can not only reduce their environmental impact but also improve their bottom line and build a more engaged and loyal workforce.
-
 

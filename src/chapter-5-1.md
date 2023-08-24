@@ -1,5 +1,3 @@
-Collaborating with Stakeholders and Partners
-===========================================================================================
 
 Developing a sustainable workplace strategy requires collaboration and partnerships with stakeholders both within and outside the organization. In this chapter, we will discuss the importance of building partnerships and networks, and provide guidance on how to collaborate effectively.
 

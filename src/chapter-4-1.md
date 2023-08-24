@@ -1,5 +1,3 @@
-Establishing Sustainability Goals and Objectives
-=============================================================================================
 
 Setting clear and measurable sustainability goals and objectives is essential for developing an effective sustainable workplace strategy. In this chapter, we will discuss how to establish sustainability goals and objectives that align with the organization's mission and values.
 

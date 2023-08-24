@@ -1,5 +1,3 @@
-Overview of Sustainable Workplace Strategies
-==========================================================
 
 Sustainability in the workplace has become an increasingly important consideration for organizations. A sustainable workplace strategy involves practices and strategies that balance the needs of the environment, society, and the economy to ensure long-term success for both the organization and its stakeholders.
 

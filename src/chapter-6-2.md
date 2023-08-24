@@ -1,5 +1,3 @@
-Providing Training and Education
-=========================================================================================
 
 Providing training and education is an essential aspect of implementing sustainable workplace practices. In this chapter, we will discuss the importance of training and education, and provide guidance on how to effectively provide sustainability training and education.
 

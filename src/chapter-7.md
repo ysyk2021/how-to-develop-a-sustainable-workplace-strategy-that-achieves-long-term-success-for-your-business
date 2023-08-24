@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Effective implementation is essential for achieving long-term success with sustainable workplace strategies. In this chapter, we will discuss how to implement sustainable workplace strategies, overcome barriers to effective implementation, and measure the effectiveness of those strategies.
 
