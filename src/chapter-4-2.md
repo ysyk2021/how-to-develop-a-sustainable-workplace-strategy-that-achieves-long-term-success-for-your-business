@@ -1,5 +1,4 @@
-Chapter 12: Developing Strategies to Achieve Those Goals
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to develop a sustainable workplace strategy that achieves long-term success for your business and employees, it is essential to implement effective strategies that align with your goals. This chapter explores the key steps involved in developing strategies that drive positive outcomes and support the overall success of your workplace strategy.
 

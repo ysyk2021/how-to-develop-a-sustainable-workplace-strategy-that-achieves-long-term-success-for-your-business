@@ -1,5 +1,4 @@
-Chapter 9: Collaborating with Stakeholders and Partners
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collaborating with stakeholders and partners is an essential aspect of developing a sustainable workplace strategy that achieves long-term success for your business and employees. In this chapter, we will explore the benefits of collaboration and provide strategies for effective collaboration with stakeholders and partners.
 

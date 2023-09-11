@@ -1,5 +1,4 @@
-Chapter 12: Innovations in Developing Sustainable Workplace Strategies
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation plays a crucial role in developing sustainable workplace strategies that drive long-term success for businesses and employees. In this chapter, we will explore the latest innovations and emerging trends that are shaping sustainable practices in the workplace.
 

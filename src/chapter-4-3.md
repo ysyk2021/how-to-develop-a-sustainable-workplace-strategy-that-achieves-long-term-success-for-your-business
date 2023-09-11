@@ -1,5 +1,4 @@
-Chapter 12: Establishing Metrics to Measure Progress
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Establishing metrics to measure progress is a critical aspect of developing a sustainable workplace strategy that achieves long-term success for your business and employees. This chapter delves into the importance of setting measurable goals, selecting relevant metrics, and implementing a framework to track progress effectively.
 

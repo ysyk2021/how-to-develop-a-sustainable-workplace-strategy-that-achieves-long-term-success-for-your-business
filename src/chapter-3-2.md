@@ -1,5 +1,4 @@
-Chapter 10: The Costs of Ignoring Sustainability
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Ignoring sustainability in the workplace can have significant consequences for businesses and their employees. In this chapter, we will explore the various costs associated with neglecting sustainability practices and the long-term impacts on business success.
 

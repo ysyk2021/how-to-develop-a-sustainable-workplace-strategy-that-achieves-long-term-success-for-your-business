@@ -1,5 +1,4 @@
-Chapter 16: The Role of Leadership in Supporting Sustainable Workplace Strategies
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership plays a crucial role in driving and supporting sustainable workplace strategies. In this chapter, we will explore the importance of leadership in fostering a culture of sustainability within an organization and provide guidance on how leaders can effectively support and champion sustainable workplace initiatives.
 

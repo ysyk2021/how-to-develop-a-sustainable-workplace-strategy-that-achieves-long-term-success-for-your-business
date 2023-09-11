@@ -1,5 +1,4 @@
-Chapter 5: The Benefits of Sustainable Workplace Strategies
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Sustainable workplace strategies offer numerous benefits for businesses and their employees. In this chapter, we will explore the key advantages of adopting sustainable practices in the workplace.
 

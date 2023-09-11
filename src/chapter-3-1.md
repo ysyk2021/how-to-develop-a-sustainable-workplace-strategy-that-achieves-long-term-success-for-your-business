@@ -1,5 +1,4 @@
-Chapter 11: Understanding the Impact of Sustainability on Organizational Success
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Sustainability plays a crucial role in determining the long-term success of organizations. In this chapter, we will explore the various ways in which sustainability practices impact organizational success and why it is essential for businesses to prioritize sustainability.
 

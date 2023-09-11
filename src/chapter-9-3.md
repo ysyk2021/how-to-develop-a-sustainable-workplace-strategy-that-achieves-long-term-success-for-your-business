@@ -1,5 +1,4 @@
-Chapter 14: Looking Ahead to the Future of a Workforce with a Sustainable Workplace Strategy
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As businesses continue to develop and implement sustainable workplace strategies, it is important to look ahead and envision the future of a workforce that embraces sustainability. In this chapter, we will explore the potential advancements and trends that may shape the future of sustainable workplaces.
 

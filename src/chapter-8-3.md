@@ -1,5 +1,4 @@
-Chapter 15: Addressing Challenges and Setbacks
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing a sustainable workplace strategy is not without its challenges and setbacks. In this chapter, we will explore some common obstacles that organizations may face along their sustainability journey and provide strategies for effectively addressing and overcoming them.
 

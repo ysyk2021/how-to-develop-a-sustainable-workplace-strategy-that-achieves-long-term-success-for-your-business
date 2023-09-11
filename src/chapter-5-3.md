@@ -1,5 +1,4 @@
-Chapter 8: Engaging with Community and Industry Leaders
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Engaging with community and industry leaders is an essential component of developing a sustainable workplace strategy that achieves long-term success for your business and employees. In this chapter, we will discuss the benefits of engaging with these stakeholders and strategies for effective engagement.
 
